@@ -113,3 +113,16 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+
+### Sweet Rice
+
+Ingredients:
+- 200 1/4 cups of rice
+- 100 tsp Sugar
+
+
+Instructions:
+1. Put cups of rice in rice cooker
+2. Add Sugar
+3. Profit
